@@ -1,4 +1,4 @@
-Hey  Floks!! 👋
+Hey  Folks!! 👋
 More about Me
 https://www.rahulsrivastava.tech
 
